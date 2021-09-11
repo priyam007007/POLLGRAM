@@ -19,6 +19,6 @@ Our Motto
 > To provide simple and better platform for people with goals.
 
 
-The link for our website is: [Website Link](https://priyam-op-007.github.io/SMC-T-3-HTM-2.0/signup.html)
+The link for our website is: [Website Link](https://priyam007007.github.io/POLLGRAM/signup.html)
 
-Here is the link for the video - [Video Link](https://youtu.be/9MZ59-BzXUY)
+Here is the link for the video - [Video Link](https://youtu.be/oQ5vgqZWyJY)
